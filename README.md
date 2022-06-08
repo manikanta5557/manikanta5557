@@ -1,5 +1,5 @@
 - 👋 Hi, I’m manikanta dommati 
-- semaphore at @iiitkottayam 
+- sophomore at @iiitkottayam 
 
 <!---
 manikanta5557/manikanta5557 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
